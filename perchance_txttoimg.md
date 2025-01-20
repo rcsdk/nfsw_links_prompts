@@ -14,6 +14,15 @@ https://perchance.org/bsdm-portrait
 https://perchance.org/wm6bfaxhk6
 https://perchance.org/3s1vqcn2m7
 https://perchance.org/ai-human-generator
+https://perchance.org/advance-nsfw-ai-generator
+https://perchance.org/ffbxd0n1i0
+https://perchance.org/aimage
+https://perchance.org/nsfw-ai
+https://perchance.org/realistic-human-image-generator
+https://perchance.org/lc474145uu
+https://perchance.org/y1dz1yhpdi
+https://perchance.org/bigb
+
 
 https://perchance.org/ai-text-to-image-generator
 https://perchance.org/ess-adv-img-gen
