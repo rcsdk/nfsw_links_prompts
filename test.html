@@ -1,0 +1,19 @@
+# Perchance Links :: 18+ Image Generators
+
+A collection of links to various 18+ image generators on Perchance.
+
+## AI Photo Generators
+- <button onclick="openInPrivateTab('https://perchance.org/ai-photo-generator')">Open AI Photo Generator</button>
+- <button onclick="openInPrivateTab('https://perchance.org/realisticimage')">Open Realistic Image</button>
+- <!-- Add more buttons as needed -->
+
+<script>
+  function openInPrivateTab(url) {
+    var a = document.createElement("a");
+    a.href = url;
+    a.rel = "noreferrer noopener";
+    a.target = "_blank";
+    var evt = new MouseEvent("click", { bubbles: true, cancelable: true, view: window });
+    a.dispatchEvent(evt);
+  }
+</script>
