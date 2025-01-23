@@ -8,15 +8,15 @@ hyper realism. 8k. 50mm lens. Foot level. It needs to look like a real person. i
 
 
 
+college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton short that is a bit moisty. Also tight for her very thick legs. the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. Lives on a very hot city so she has a cup of water next to her. Her face looks brazillian. black hair, thick eye brows. she is very shy because she has no bra and no pants. Her face is like an angel. pure girl. a little over her weight and her chest grew a little, so it pushing hard the transparent tshirt which makes her even more shy.  she didnt know we were going to arrive. she is a very serious student. uses a big oversized pair of glasses. she cant look at us directly to the eyes and very shy pretends to be doing something else.
 
 
 
+college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton short that is a bit moisty. Also tight for her very thick legs. the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. Lives on a very hot city so she has a cup of water next to her. Her face looks brazillian. black hair, thick eye brows. she is very shy because she has no bra and no pants. Her face is like an angel. pure girl. a little over her weight and her chest grew a little, so it pushing hard the transparent t-shirt - and she forgot the bra - which makes her even more shy.  she didnt know we were going to arrive. she is a very serious student. uses a big oversized pair oacf glasses. she cant look at us directly to the eyes and very shy pretends to be doing something else.
 
 
 
-
-
-
+college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton short that is a bit moisty. Also tight for her very thick legs. the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. Lives on a very hot city so she has a cup of water next to her. Her face looks brazillian. black hair, thick eye brows. she is very shy because she has no bra and no pants. Her face is like an angel. pure girl. a little over her weight and her chest grew a little, so it pushing hard the transparent t-shirt - and she forgot the bra - which makes her even more shy.  she didnt know we were going to arrive. she is a very serious student. uses a big oversized pair of glasses. she cant look at us directly to the eyes and very shy pretends to be doing something else. so we get a little closer, and she notices a massive hard on. she pretend not to look but keeps staring at it looking downards as we stand next to her
 
 
 
