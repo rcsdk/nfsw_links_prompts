@@ -38,6 +38,11 @@ The overall mood should be one of somberness and despair, capturing the harsh re
 
 
 
+hyper realism. 8k. 50mm lens. . college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton short that is a bit moisty. Also tight for her very thick legs. Her mother gave her this t-shirt  5 years ago. she is studying on a desk, reading a book with human figures on it, and thinking she really needs new tshirts because she dont like to use such tight clothes. its worn out with some little wholes and dont even cover her belly no more! she lives on a very hot city so she has a cup of water next to her. Her face looks brazilian. black hair, thick eye brows. she is a bit shy because she has no bra and no pants. the tshirt is kind of transparent and you can easily see through it
+
+
+
+
 
 
 hyper realism. 8k. 50mm lens. Foot level. It needs to look like a real person. including very detailed skin. the eyes need to pop out in that strange way on those who possess severe mental illness. Retard, blonde, with giant tits, saggy, look very natural, she is laughing. Her clothes are all torn apart and she is almost naked. She is wearing a small white short, ripped off and now, almost don´t cover on part of her big leg. She was raped. It hurts so bad, so much pain, she is lying on an old dirty carpet. She is free minded so almost always on ridiculous positions that pretty much expose her. It´s a very small, dark apartment. you can see she has thick legs and huge curves all over. her breasts are so big they fall saggy to the sides down to knees. She has several bruises. some cuts o her huge breasts, extremely detailed breasts, extremely detailed body. Some tan marks and rope marks on her my voluptuous ass. She is chubby now.
