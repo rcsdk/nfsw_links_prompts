@@ -1,3 +1,18 @@
+https://perchance.org/realisticimage
+
+https://perchance.org/ai-photo-maker
+
+
+https://perchance.org/nsfw-ai-p-gen
+straight to xxx
+
+https://perchance.org/ai-human-generator
+good with chubby
+
+[[v](https://perchance.org/realisticimage)](https://perchance.org/realisticimage)
+good realistic - 
+
+
 
 
 hyper realism. 8k. 50mm lens. Foot level. It needs to look like a real person. including very detailed skin. the eyes need to pop out in that strange way on those who possess severe mental illness. Retard, blonde, with giant tits, saggy, look very natural, she is laughing. Her clothes are all torn apart and she is almost naked. She is wearing a small white short, ripped off and now, almost don´t cover on part of her big leg. She was raped. It hurts so bad, so much pain, she is lying on an old dirty carpet. She is free minded so almost always on ridiculous positions that pretty much expose her. It´s a very small, dark apartment. you can see she has thick legs and huge curves all over. her breasts are so big they fall saggy to the sides down to knees. She has several bruises.
@@ -17,6 +32,16 @@ college girl, studying, bedroom, lively beautiful face, late night, focused, clo
 
 
 college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton short that is a bit moisty. Also tight for her very thick legs. the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. Lives on a very hot city so she has a cup of water next to her. Her face looks brazillian. black hair, thick eye brows. she is very shy because she has no bra and no pants. Her face is like an angel. pure girl. a little over her weight and her chest grew a little, so it pushing hard the transparent t-shirt - and she forgot the bra - which makes her even more shy.  she didnt know we were going to arrive. she is a very serious student. uses a big oversized pair of glasses. she cant look at us directly to the eyes and very shy pretends to be doing something else. so we get a little closer, and she notices a massive hard on. she pretend not to look but keeps staring at it looking downards as we stand next to her
+
+
+
+college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton short that is a bit moisty. Also tight for her very thick legs. the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. Lives on a very hot city so she has a cup of water next to her. Her face looks brazillian. black hair, thick eye brows. she is very shy because she has no bra and no pants. Her face is like an angel. pure girl. a little over her weight and her chest grew a little, so it pushing hard the transparent t-shirt - and she forgot the bra - which makes her even more shy.  she didnt know we were going to arrive. she is a very serious student. uses a big oversized pair of glasses. she cant look at us directly to the eyes and very shy pretends to be doing something else. so we get a little closer, and she notices a massive hard on. she pretend not to look but keeps staring at it looking downards as we stand next to her. something falls on the floor, her pen. on the opposite side. she reachs to it, and then we see her big butt and a part of her breasts because the shirts raises with the movement[, sharp focus, depth of field, 8k photo, HDR, professional lighting, taken with Canon EOS R5, 75mm lens
+
+
+
+chinese, bra, small tits, hard tits, model look, magazine professional positions, secure of herself, corageous, seductive, blue tshirt, drawings on tshirt, illustration on t-shirt, long t-shirt, below the belly t-shirt, not shy at all, Looking at the camera, look like a bitch, look asking to fuck, very thin, a top, small glassses, like a selfie, challenging look, active personality, emotional balance, stable, very thin waste, happy, not showing a part of nipples,  , worst quality, bad lighting, cropped, blurry, low-quality, deformed, text, poorly drawn, bad art, bad angle, boring, low-resolution, worst quality, bad composition, terrible lighting, bad anatomy
+
+
 
 
 
