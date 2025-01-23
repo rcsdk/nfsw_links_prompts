@@ -6,6 +6,22 @@ hyper realism. 8k. 50mm lens. Foot level. It needs to look like a real person. i
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Generate a 12K resolution image in 16:9 aspect ratio. The scene is a dark, dimly lit room with a sense of neglect and despair. The subject is a blonde woman with intellectual disabilities, lying on a dirty, worn-out carpet. Her skin texture should be highly detailed, with realistic pores, wrinkles, and imperfections.
 
 Her face should be more realistic, with subtle expressions and nuances that convey her emotional state. The eyes are crucial; they should have an unsettling intensity, as if they 'pop out' in a way that's often associated with severe mental illness. The gaze should be haunting, with a deep sense of sadness and desperation.
