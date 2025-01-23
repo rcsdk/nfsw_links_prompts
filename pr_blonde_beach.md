@@ -5,6 +5,25 @@ hyper realism. 8k. 50mm lens. Foot level. It needs to look like a real person. i
 
 
 
+
+Generate a 12K resolution image in 16:9 aspect ratio. The scene is a dark, dimly lit room with a sense of neglect and despair. The subject is a blonde woman with intellectual disabilities, lying on a dirty, worn-out carpet. Her skin texture should be highly detailed, with realistic pores, wrinkles, and imperfections.
+
+Her face should be more realistic, with subtle expressions and nuances that convey her emotional state. The eyes are crucial; they should have an unsettling intensity, as if they 'pop out' in a way that's often associated with severe mental illness. The gaze should be haunting, with a deep sense of sadness and desperation.
+
+She has several bruises on her body, including cuts on her breasts and tan lines along with rope marks on her voluptuous ass. Her breasts are large and saggy, reaching down to her knees. She's wearing a small, ripped white short that barely covers part of her large leg. Chubby, have breasts so big they hang to each side. saggy. There is guy, older, masturbating and looking at her.
+
+The lighting is dim, with only faint hints of light peeking through the darkness. The shadows should be deep and pronounced, accentuating the contours of her body and the textures of the surrounding environment.
+
+The overall mood should be one of somberness and despair, capturing the harsh reality of her situation without glamourizing or trivializing it. Ensure that every detail, from the skin texture to the surroundings, is highly realistic and immersive."
+
+
+
+
+
+
+
+
+
 hyper realism. 8k. 50mm lens. Foot level. It needs to look like a real person. including very detailed skin. the eyes need to pop out in that strange way on those who possess severe mental illness. Retard, blonde, with giant tits, saggy, look very natural, she is laughing. Her clothes are all torn apart and she is almost naked. She is wearing a small white short, ripped off and now, almost don´t cover on part of her big leg. She was raped. It hurts so bad, so much pain, she is lying on an old dirty carpet. She is free minded so almost always on ridiculous positions that pretty much expose her. It´s a very small, dark apartment. you can see she has thick legs and huge curves all over. her breasts are so big they fall saggy to the sides down to knees. She has several bruises. some cuts o her huge breasts, extremely detailed breasts, extremely detailed body. Some tan marks and rope marks on her my voluptuous ass. She is chubby now.
 
 
