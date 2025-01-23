@@ -13,13 +13,18 @@ good with chubby
 good realistic - 
 
 
+she noticed i am hard and its huge. she is over weight, a little chubby with a big chest ., casual photo, natural beauty, slight cleavage visible, natural beauty
 
+college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton pantie that is a bit moisty. Also tight for her very thick legs. the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. Lives on a very hot city so she has a cup of water next to her. she is extremely shy.  starts to get nervous. she noticed i am hard and its huge. she is over weight, a little chubby with a big chest .she turns around and shows me her butt, pulling the panties to the side., sharp focus, depth of field, 8k photo, HDR, professional lighting, taken with Canon EOS R5, 75mm lens (seed:::58294080)
+
+
+college girl, studying, bedroom, she is over weight, a little chubby with a big chest .she turns around and shows me her butt, pulling the panties to the side. college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton pantie that is a bit moisty. Also tight for her very thick legs. the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. Lives on a very hot city so she has a cup of water next to her. she is extremely shy.  starts to get nervous. she noticed i am hard and its huge. she is over weight, with a big chest . she take her clothes off and get on her knees  on the floor looking up to me. time to suck my dick.camera very close to my shoulder looking down. sharp focus, depth of field, 8k photo, HDR, professional lighting, taken with Canon EOS R5, 75mm lens (seed:::582940800)
 
 hyper realism. 8k. 50mm lens. Foot level. It needs to look like a real person. including very detailed skin. the eyes need to pop out in that strange way on those who possess severe mental illness. Retard, blonde, with giant tits, saggy, look very natural, she is laughing. Her clothes are all torn apart and she is almost naked. She is wearing a small white short, ripped off and now, almost don´t cover on part of her big leg. She was raped. It hurts so bad, so much pain, she is lying on an old dirty carpet. She is free minded so almost always on ridiculous positions that pretty much expose her. It´s a very small, dark apartment. you can see she has thick legs and huge curves all over. her breasts are so big they fall saggy to the sides down to knees. She has several bruises.
 
+college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton pantie that is a bit moisty. Also tight for her very thick legs. the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. Lives on a very hot city so she has a cup of water next to her. she is extremely shy.  starts to get nervous. she noticed i am hard and its huge. she is over weight, a little chubby with a big chest .she turns around and shows me her butt, pulling the panties to the side., sharp focus, depth of field, 8k photo, HDR, professional lighting, taken with Canon EOS R5, 75mm lens
 
-
-
+chinese, bra, small tits, hard tits, model look, magazine professional positions, secure of herself, corageous, seductive, blue tshirt, drawings on tshirt, illustration on t-shirt, long t-shirt, below the belly t-shirt, not shy at all, Looking at the camera, look like a bitch, look asking to fuck, very thin, a top, small glassses, like a selfie, challenging look, active personality, emotional balance, stable, very thin waste, happy, not showing a part of nipples,  , worst quality, bad lighting, cropped, blurry, low-quality, deformed, text, poorly drawn, bad art, bad angle, boring, low-resolution, worst quality, bad composition, terrible lighting, bad anatomy
 
 
 
