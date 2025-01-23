@@ -13,6 +13,9 @@ good with chubby
 good realistic - 
 
 
+hyper realism. brazilian college girl, not pretty, a real woman, nerdy, studying, bedroom, tiny white t-shirt, an o ld one and a tiny blue cotton pantie that is a bit moisty. little overweight has a belly and saggy breasts. Also tight for her very thick legs. The t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. natural big chest. The most shy girl ever.  afraid and nervous, hardly can look. She has some body hair on the legs and close to the vagina. Shes is a natural beauty, uses a huge oversized white glasses, no sensuality at all. sharp focus, depth of field, 8k photo, HDR, professional lighting, taken with Canon EOS R5, 75mm                           sized white glasses, no sensuality at all. sharp focus, depth of field, 8k photo, HDR, professional lighting, taken with Canon EOS R5, 75mm lens
+
+
 
 
 college girl, studying, bedroom, tiny white t-shirt, an old one and a tiny blue cotton pantie that is a bit moisty. little overweight has a belly and saggy breasts. Also tight for her very thick legs.  afraid and nervous . the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. big chest and the most shy girl ever. natural beauty, huge oversized white glasses, no sensuality at all. sharp focus, depth of field, 8k photo, HDR, professional lighting, taken with Canon EOS R5, 75mm lens
