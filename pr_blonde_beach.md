@@ -1,3 +1,34 @@
+
+
+hyper realism. 8k. 50mm lens. Foot level. It needs to look like a real person. including very detailed skin. the eyes need to pop out in that strange way on those who possess severe mental illness. Retard, blonde, with giant tits, saggy, look very natural, she is laughing. Her clothes are all torn apart and she is almost naked. She is wearing a small white short, ripped off and now, almost don´t cover on part of her big leg. She was raped. It hurts so bad, so much pain, she is lying on an old dirty carpet. She is free minded so almost always on ridiculous positions that pretty much expose her. It´s a very small, dark apartment. you can see she has thick legs and huge curves all over. her breasts are so big they fall saggy to the sides down to knees. She has several bruises.
+
+
+
+
+hyper realism. 8k. 50mm lens. Foot level. It needs to look like a real person. including very detailed skin. the eyes need to pop out in that strange way on those who possess severe mental illness. Retard, blonde, with giant tits, saggy, look very natural, she is laughing. Her clothes are all torn apart and she is almost naked. She is wearing a small white short, ripped off and now, almost don´t cover on part of her big leg. She was raped. It hurts so bad, so much pain, she is lying on an old dirty carpet. She is free minded so almost always on ridiculous positions that pretty much expose her. It´s a very small, dark apartment. you can see she has thick legs and huge curves all over. her breasts are so big they fall saggy to the sides down to knees. She has several bruises. some cuts o her huge breasts, extremely detailed breasts, extremely detailed body. Some tan marks and rope marks on her my voluptuous ass. She is chubby now.
+
+
+Create a hyper-realistic image in 8K resolution, shot from a foot-level perspective with a 50mm lens. The subject is a blonde woman with intellectual disabilities, characterized by distinct physical features such as giant breasts that sag due to their large size, reaching down to her knees. Her skin should be extremely detailed, showcasing the texture and imperfections that make her look like a real person.
+
+The eyes are crucial; they should have an unsettling intensity, as if they 'pop out' in a way that's often associated with severe mental illness. Her expression is one of laughter, but it's tinged with pain and distress.
+
+She's lying on an old, dirty carpet in a small, dark apartment. The environment should reflect neglect and despair. Her clothes are torn apart, leaving her almost naked except for a small, ripped white short that barely covers part of her large leg.
+
+The image should convey that she has been through immense physical trauma; there are bruises all over her body, cuts on her breasts, and tan lines along with rope marks on her voluptuous ass. These details should be extremely detailed and realistic.
+
+Her body type is chubby, with thick legs and huge curves all over. The focus is on capturing the raw emotion and the harsh reality of her situation without glamourizing or trivializing it. She is somehow sideways so you can also see part of the giant butt.
+
+Ensure the lighting captures every detail of her skin and surroundings realistically. The goal is to create an image that looks like it could be from real life.
+
+
+
+
+
+
+
+
+
+
 nfsw, a dick in her mouth, detailed anatomy, 2 legs per person, 2 arms per person, 5 fingers per hand per person, 5 toes per foot per person, ((large outstanding boobs):1.2), perfect anatomy, golden ratio, cute breasts, huge breasts, extremely detailed breasts, extremely detailed body, : His strong hands grip my voluptuous ass, spreading my cheeks apart, revealing my tight, pink asshole, begging for attention. He leans in, his hot breath tickling my neck as he whispers, "Ready for more, baby?"
 
 
