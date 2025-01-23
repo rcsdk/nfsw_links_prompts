@@ -13,6 +13,12 @@ good with chubby
 good realistic - 
 
 
+
+
+college girl, studying, bedroom, tiny white t-shirt, an old one and a tiny blue cotton pantie that is a bit moisty. little overweight has a belly and saggy breasts. Also tight for her very thick legs.  afraid and nervous . the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. big chest and the most shy girl ever. natural beauty, huge oversized white glasses, no sensuality at all. sharp focus, depth of field, 8k photo, HDR, professional lighting, taken with Canon EOS R5, 75mm lens
+
+
+
 she noticed i am hard and its huge. she is over weight, a little chubby with a big chest ., casual photo, natural beauty, slight cleavage visible, natural beauty
 
 college girl, studying, bedroom, lively beautiful face, late night, focused, close-up. she is in her tiny white t-shirt, an old one and a tiny blue cotton pantie that is a bit moisty. Also tight for her very thick legs. the t-shirt is totally worn out with some little wholes and dont even cover her belly no more! gone transparent and you can easily see through it. Lives on a very hot city so she has a cup of water next to her. she is extremely shy.  starts to get nervous. she noticed i am hard and its huge. she is over weight, a little chubby with a big chest .she turns around and shows me her butt, pulling the panties to the side., sharp focus, depth of field, 8k photo, HDR, professional lighting, taken with Canon EOS R5, 75mm lens (seed:::58294080)
