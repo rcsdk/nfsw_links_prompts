@@ -33,6 +33,92 @@ Building Intimacy
 Deepening the Relationship
 
 
+
+## 🌀 INITIATION (300-character prompts)
+
+...[existing content]...
+
+
+## ⚖️ PUSH / PULL (300-character prompts)
+
+...[existing content]...
+
+
+## 🤲 HOLDING TENSION (300-character prompts)
+
+...[existing content]...
+
+
+## 🌡️ SEXY & AWKWARD (300-character prompts)
+
+We stood too close. Not close enough to kiss—but close enough to feel each other's heat. I looked down at your lips, and you looked away fast. But you didn’t move. You never move.
+
+I reached to fix your collar and my fingers grazed your skin. You froze. I muttered “sorry,” but didn’t pull away. You didn’t either. We stayed like that—pretending it meant nothing.
+
+You brushed past me in the hallway, barely a touch, but my whole body reacted. I turned. You were already watching me—eyes wide, caught, like you felt it too.
+
+Our knees touched under the table. Neither of us moved. It became a war of stillness. Your breath hitched. I pretended not to hear it. You pretended not to notice how my fingers tightened around my glass.
+
+You leaned over me to grab something and your hair fell across my face. I didn’t flinch. Your hand brushed mine. You didn’t flinch either. We pretended the tension didn’t exist. It pulsed between us anyway.
+
+We sat beside each other, thigh to thigh, shoulder to shoulder. Every time one of us shifted, the contact changed—more pressure, more heat. We didn’t acknowledge it. But we didn’t move apart.
+
+Your voice cracked mid-sentence when our hands touched. You kept talking, pretending nothing happened. But your eyes? Your eyes stayed on my mouth like it had said something forbidden.
+
+I asked you something simple. You nodded, too fast. I reached to touch your arm in reassurance. You swallowed. I didn’t let go. You didn’t pull away. The answer became irrelevant.
+
+We reached for the same object, our hands colliding. You laughed, awkward and breathless. I didn’t. I watched you. The laugh faded into silence. We were still touching.
+
+I complimented your outfit. You said “thank you” with a stutter, looking everywhere but me. I stepped closer. You didn’t back away. That silence? That’s where it got dangerous.
+
+Your lips brushed my cheek by accident—or so you said. But your breath stayed against my skin too long. Long enough that I forgot where we were. Long enough that you whispered my name.
+
+You tripped and I caught you. You landed in my arms. You laughed nervously, but didn’t move. I held you a second too long. You looked up at me like you were hoping I wouldn’t let go.
+
+I adjusted your necklace, fingers tracing your collarbone. You inhaled. Shallow. Quick. Your hand rose halfway to stop me—then dropped. That was the moment I knew you liked the tension.
+
+I asked you if you were cold. You said no, but you shivered. I moved closer. “Still no?” You didn’t answer. I put my coat around you. You leaned into it. Into me.
+
+You brushed lint off my shirt. It didn’t need to be removed. We both knew that. Your fingers stayed. I looked down at your hand. You didn’t pull it away. You just smiled—too innocently.
+
+I held the door open and our shoulders brushed. You said “Thanks,” voice lower than usual. I said “Anytime.” Neither of us moved. The door stood wide. We did not.
+
+I reached across you for the salt. You didn’t lean away. Your breath touched my neck. The salt didn’t matter. Your silence did. It held more weight than any words you might’ve offered.
+
+We watched something on a screen—close, too close. A kiss scene played. You stiffened. I glanced at you. You didn’t look away. Neither did I. The moment passed—but lingered anyway.
+
+You said “We should talk.” I said “Then say something.” You didn’t. You just stood there, eyes flicking to my lips. We didn’t talk. But everything we weren’t saying was screaming between us.
+
+You touched my back when you passed me—light, fleeting. But it lingered like a spark. I turned, and you smiled like it was nothing. Like it hadn’t changed everything.
+
+You asked if I wanted to help you get something off a high shelf. I stepped behind you, close. Too close. Your breathing changed. You didn’t reach. I didn’t either. We just… stood there.
+
+You told a joke. I laughed. You laughed. Then it got quiet. Too quiet. Your eyes didn’t leave mine. I felt the shift. I don’t remember the joke anymore. Just the silence that followed.
+
+Your hand brushed mine twice. I thought it was an accident. Then it happened again. Three times is a pattern. I looked at you. You looked away. But your hand stayed close.
+
+You said I make you nervous. I asked why. You said nothing. Just looked at me like I already knew. I stepped closer. You didn’t retreat. Your silence spoke louder than any explanation.
+
+I helped you with your jacket. My fingers grazed your neck. You didn’t flinch. You didn’t move. You just exhaled—slowly. Like you’d been holding your breath waiting for that exact moment.
+
+I brushed a speck from your cheek. You said, “Was that really necessary?” I said, “Absolutely.” You rolled your eyes—but your smile betrayed you. And you didn’t move away.
+
+You told me not to flirt. I told you I wasn’t. You blushed. I leaned in. “Still think I’m not?” You didn’t answer. Your face said everything.
+
+We locked eyes during the toast. You looked away first. I kept looking. When you looked back, your breath caught. I smiled. You didn’t. But your cheeks flushed. That was enough.
+
+I handed you a drink and our fingers touched. You said “Oops.” I said “Not an accident.” You didn’t argue. You just sipped slowly, eyes never leaving mine.
+
+You brushed against me again—fifth time today. I asked, “Are we pretending that’s coincidence?” You said nothing. But you didn’t move away. Not once.
+
+You said “This doesn’t mean anything.” I nodded. “Then why are you trembling?” Your eyes dropped to my lips. I didn’t need an answer.
+
+You said “I don’t want this.” I leaned in and whispered, “Then stop me.” You didn’t move. You didn’t speak. You just closed your eyes.
+
+
+
+
+
 I held you tight like I could keep the moment still. You struggled, but it was soft, tentative—like your body hadn’t yet convinced your heart to escape. And in that pause, I felt your breath betray the lie of your resistance.
 
 You twisted in my arms, but not hard. Not enough to break free. Just enough to remind us both that you could—if you truly wanted to. But your hands clung to my sleeves. They always do.
