@@ -34,6 +34,7 @@ Deepening the Relationship
 
 
 
+
 ## 🌀 INITIATION (300-character prompts)
 
 ...[existing content]...
@@ -50,6 +51,77 @@ Deepening the Relationship
 
 
 ## 🌡️ SEXY & AWKWARD (300-character prompts)
+
+...[existing content]...
+
+
+## 🌙 AWAKENINGS (400-character prompts)
+
+I was half-asleep when I felt her fingers gently trace my jaw. I didn’t open my eyes. I just turned toward the warmth, the pressure, the silent invitation. She whispered my name like a question, and I answered by exhaling her scent, hoping she’d stay a little longer.
+
+She slipped under the covers, her thigh grazing mine. I felt her breath on my neck before I heard her voice. "You're warm," she murmured. I didn't move. I just reached behind and wrapped my arm around her waist. She tensed, but didn't pull away. Not really.
+
+The mattress dipped and I stirred. Her silhouette hovered over me in the dark, watching. I reached up blindly and found her wrist. "You couldn't sleep?" I whispered. She said nothing, but leaned in like her silence held the answer. I didn’t let go.
+
+A cold hand on my chest jolted me, but when I opened my eyes, she was already pulling back. "Sorry," she whispered. I caught her fingers before she could leave. "It’s okay," I said, pulling her down beside me. "Stay. Even if you don’t want to talk."
+
+She sat at the edge of the bed, brushing hair from my forehead. I blinked up at her, unsure if I was dreaming. Her touch was too tender, her eyes too soft for a woman trying to leave. I reached up slowly, letting my hand rest over hers. She didn’t move.
+
+I awoke to the sound of her breathing—shallow, close. I opened one eye and saw her sitting cross-legged beside me, watching. I reached for her without a word. She stiffened—but didn’t retreat. We stayed like that, suspended in the space between.
+
+She lay beside me, barely touching. Her pinky brushed mine, like it wanted to say something the rest of her couldn’t. I turned, caught her watching. She froze. I didn’t speak. I just intertwined our fingers—and waited.
+
+The room was quiet until I felt her knee slide between mine. Her arm across my stomach followed. I placed my hand over hers, half-asleep, half-aware of what that meant. She tried to pull back. I didn’t let her. Neither of us said a word.
+
+A whisper broke through my dream. Her voice, uncertain. My name. I opened my eyes to find her face inches from mine, breath warm and sweet with wine. I said nothing, just reached up and cradled her cheek. Her eyes closed like she’d been waiting for that touch.
+
+She touched my back gently, like she didn’t want to wake me—yet didn’t want to stop touching. I rolled over, eyes meeting hers in the dark. She didn’t move away. I didn’t say a word. We just stayed there, caught between restraint and the ache of almost.
+
+She woke me with a kiss—not on the lips, but my temple, like a confession too soft to speak. I opened my eyes and found her already looking away, retreating. I reached for her hand, laced our fingers, and whispered, "You don’t have to leave yet."
+
+Her hair fell over my face like a curtain as she leaned over me. I stirred, but didn’t open my eyes. Her fingers brushed my jaw, my chest. I caught her hand before it moved further. "Is this what you want?" I asked. Her breath hitched. "I don’t know," she whispered.
+
+She slid into bed slowly, like hoping not to wake me. But I was already awake, waiting. I turned into her warmth, wrapped my arms around her waist. She tensed. "You don’t have to stay," I murmured. But she didn’t leave. Not that night.
+
+She whispered, "You talk in your sleep." I blinked up at her. "And what did I say?" I asked. She didn’t answer. Just looked at me like she wished I hadn’t woken. I sat up, brushed her hair back, and said, "Then stay and tell me more."
+
+She was standing over me in the moonlight, her robe barely closed, a glass of something half-drunk in her hand. I didn’t ask why she was there. I just moved the blanket aside and said, "You came. Again." She hesitated—then stepped closer.
+
+Her lips hovered over mine, unsure. I opened my eyes just in time to see her pull back. "Sorry," she murmured. I grabbed her wrist gently. "Don’t be," I said. She didn’t speak again—but she didn’t leave either.
+
+I felt her heartbeat against my back. Slow. Then faster. She thought I was asleep. I wasn’t. I reached back, found her hand, squeezed it once. She froze. Then, slowly, her fingers curled around mine. Just like that, we were connected—again.
+
+She touched my face with the back of her hand. Cool and soft. "Are you awake?" she whispered. I didn’t answer. Just turned my head and kissed her palm. She inhaled. I felt her pulse in her fingertips.
+
+She lay beside me, eyes wide in the dark. I watched her pretend to sleep. I reached over and brushed her arm. She shivered. "Are you cold?" I asked. She said no—but curled closer anyway.
+
+She stirred me awake just by shifting closer. Her body heat, the faint scent of her skin. I opened one eye. She whispered, "Sorry. I couldn’t sleep." I held the blanket up. She slid beneath it—into my arms. No more words needed.
+
+She climbed into bed without a word, laying back to back. I rolled toward her, not touching—just there. Eventually, her foot brushed mine. I didn’t move. But I smiled. She stayed.
+
+The sheets rustled as she turned to face me. Her breath touched my lips. My name, a whisper. I opened my eyes. She was inches away, but didn’t move closer. So I did. Just a little. She didn’t stop me.
+
+She rested her head on my chest, slowly, like testing gravity. I opened my eyes and wrapped my arms around her. She tensed, but then relaxed into it. I kissed the top of her head. She didn’t pull away.
+
+I woke to her fingers tracing the line of my collarbone. Light. Tentative. She didn’t realize I was awake. I let her draw lines across my skin, hoping she’d keep going—long after sunrise.
+
+She whispered my name like she wasn’t sure if I’d hear. I did. I turned slowly, eyes meeting hers in the dark. She opened her mouth to speak. I kissed her instead.
+
+She said, "This doesn’t mean anything." I smiled. "Then why are you still here?" She didn’t answer. Just crawled closer. I didn’t stop her.
+
+She was already in bed when I returned. I slipped under the covers beside her. She rolled into me like she’d been waiting. I pulled her close. Her breath hitched—but she stayed.
+
+She said she couldn’t sleep without me anymore. I didn’t ask why. I just opened the blanket. She crawled in and didn’t let go.
+
+She stood in the doorway for a long time before crossing the room. I pretended to sleep. When she finally lay down beside me, I turned to hold her. She didn’t protest.
+
+Her fingers brushed my cheek and I opened my eyes. She smiled—small, scared. I reached up, cupped her face, and whispered, "Don’t run this time."
+
+I woke with her fingers tangled in mine. She said nothing. I didn’t let go.
+
+
+
+
 
 We stood too close. Not close enough to kiss—but close enough to feel each other's heat. I looked down at your lips, and you looked away fast. But you didn’t move. You never move.
 
