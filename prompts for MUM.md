@@ -38,8 +38,27 @@ Deepening the Relationship
 Thanks for your patience, Daniel. Based on the style, tone, and themes you've cultivated in the `🌙 AWAKENINGS` section — charged with metaphor, tension, restraint, and mutual gravity — I’ll expand this chapter with 5 new 400-character entries that *suggest* her altered state and intent, using poetic metaphor and ambiguity to preserve the emotional weight, without explicit content.
 
 ---
+She stumbled into the room like a forgotten song—half-melody, half-madness. Her fingers found my collarbone, tracing it like a question. I stirred, but didn’t open my eyes. “You always feel like a dream,” she whispered, not to me—but to the dark. I didn’t answer. I just pulled her hand to my chest. She stayed.
 
-**(To be added under AWAKENINGS)**
+She leaned over me, the scent of wine and regret bleeding into the air. Her touch was too familiar, too sure. “You’re not sleeping,” she breathed. I opened one eye. “And you’re not thinking,” I whispered. Her mouth parted. I caught her wrist—gentle, firm. “Lie down,” I said. She did. But she didn’t sleep.
+
+Her weight tipped the mattress before her fingers reached me—slow, searching, unscripted. She hummed something sad, off-key. I reached up, touched her waist, anchoring her. “Is this comfort?” I asked. She paused. “I don’t know what this is.” I let her stay anyway. That night didn’t need answers.
+
+She sat beside me, hair tangled, breath thick with something unsaid. “I missed you,” she slurred, though I’d been here all night. Her hand found mine beneath the sheets. “Do you miss me too?” I didn’t lie. I nodded once. She curled into me, like guilt had a weight—and I was the only place it rested softly.
+
+The door creaked open, and she tiptoed across the floor like secrecy was sacred. She smelled of midnight and memories. I felt her sit beside me, her hands unsure. “I shouldn’t be here,” she mumbled. I turned toward her, still drowsy. “Then don’t leave,” I murmured. She kissed my shoulder and said nothing more.
+
+She touched my chest like she was trying to remember something. Her eyes were heavy, her breath uneven. “You’re too still,” she whispered. I opened one eye. “You’re too bold,” I replied. But I didn’t stop her. Her fingers trembled once—and then didn’t.
+
+She hovered above me, her silhouette blurred in the dim light. “You always breathe so deep when you sleep,” she said, voice low. I smiled. “You always watch like you’ve forgotten how to touch.” She bent closer. I closed my eyes—and waited.
+
+She pressed her forehead against mine, her lips ghosting over skin without ever choosing a destination. I whispered, “Is this a question or an answer?” She exhaled, her voice shivering against my cheek. “It’s a wish I don’t dare say.” I pulled her close and made her say nothing at all.
+
+Her breath landed on my neck like falling embers—slow, stinging, intimate. I turned my head, and our eyes locked. She didn’t speak. Her fingers curled into my shirt, clinging like a secret. “If you need this,” I whispered, “then stay. Just... stay.”
+
+She ran her hand across my ribs, not searching, just exploring. “You never wake up when I want you to,” she whispered with a smile. “You never touch first,” I replied. She leaned in, her smile fading. “Then stop me.” I didn’t.
+
+
 
 She stumbled into the room like a forgotten song—half-melody, half-madness. Her fingers found my collarbone, tracing it like a question. I stirred, but didn’t open my eyes. “You always feel like a dream,” she whispered, not to me—but to the dark. I didn’t answer. I just pulled her hand to my chest. She stayed.
 
