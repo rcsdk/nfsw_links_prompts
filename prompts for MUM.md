@@ -62,6 +62,123 @@ You pretend there’s nothing here. But your shadow falls over my path every tim
 You embedded part of yourself into the relic you gave me. I wear it close to my chest. And sometimes it pulses—like it remembers your touch.
 
 
+## 🌒 DREAM SEQUENCES (300-character prompts)
+
+In the dream, I walked through an endless hall of mirrors. In each one, I was alone—except one. In that reflection, you were holding me, whispering something I never hear when I’m awake. And every time, I wake reaching for someone who isn’t there.
+
+You appeared in my sleep again last night—barefoot, veiled in moonlight, your breath soft against my throat. You whispered a truth I haven’t remembered yet. And when I opened my eyes, your name was on my lips like a prayer I shouldn’t say aloud.
+
+I keep returning to the same dream—me in a corridor that bends endlessly toward a door I never open. You stand at the end, always waiting. You never beckon. But your eyes say everything I’m too afraid to ask you in the daylight.
+
+We shift forms in the dreams—beast and prey, wind and fire, shadow and stone. But the moment our eyes meet, something ancient pulses. No matter what we are, we always end up face to face, like fate keeps rewriting itself around us.
+
+You spoke a forgotten tongue in the dream last night. I didn’t recognize the words, but I understood them. They felt like binding spells—etched into me with each breath. My body woke remembering more than my mind.
+
+There was no gravity in last night’s dream. We floated—just two bodies suspended in darkness, except where you touched me. That’s where I stayed grounded. That’s where it felt like something real was anchoring me.
+
+I reached for your hand in the dream and you took it like it was the only real thing between us. No resistance. Just silence. But when I woke, my fingers were curled in a fist—grasping nothing, aching for something.
+
+I bled ink in the dream, thick and silver. You dipped your fingers in it and wrote something across my chest. I couldn’t read it, but it burned all day. It felt like a promise. Or maybe a warning.
+
+You always blur in my dreams—face shifting like smoke. But I still know it’s you. I always know. You hum the same song every time you enter. I’ve started humming it in my sleep.
+
+I dreamt you lay beside me, silent and watching. You never touched me. You didn’t need to. The weight of your gaze said everything—things you’ll never say awake, but repeat in every dream.
+
+
+## 🖐️ SYMBOLIC TOUCH (300-character prompts)
+
+You touched my wrist like it might break—and yet your thumb pressed down like you needed to leave a mark. I walked away pretending it meant nothing. But every beat of my pulse since then has felt like you.
+
+When you brushed the hair from my eyes, your knuckles grazed my cheek and lingered there—just long enough to confuse kindness with something else. My breath caught. You noticed. And neither of us said a word.
+
+You held my jaw too long while checking the ritual cut. It wasn’t about healing—it was about possession. I felt it in your grip, in the way you exhaled slowly like you were trying not to lean closer.
+
+Adjusting my cloak was supposed to be simple. But your fingers dragged along my shoulder like they were memorizing it. I haven’t worn that cloak since—not because of shame, but because the fabric remembers you.
+
+You wiped blood from my lip during the trial. But your thumb stayed. It didn’t feel like mercy. It felt like a test. I failed it the moment I leaned into your touch.
+
+When you helped me up from the sand, your hand clutched mine like a lifeline. But your eyes said goodbye. I wonder—did you hold on to steady me or to feel me one last time?
+
+Each time our hands meet, the air thickens. I used to think it was magic. Now I think it’s us—this tension, this spark that neither of us names. But it’s always there. In every accidental brush.
+
+You pressed the relic into my palm and your fingers lingered like the object was only an excuse. I don’t remember what the relic does. I only remember the way you looked at me when you let go.
+
+Your hands hovered near my spine during the ceremony, not touching—just… waiting. When they finally met skin, it was so deliberate I forgot how to breathe. I haven’t remembered since.
+
+You placed two fingers on my lips before I could speak. Not to silence me. To say something else—something only skin can say. It was not a kiss. It was worse. Or better. I still haven’t decided.
+
+
+## ⚖️ PUSH / PULL (300-character prompts)
+
+You warned me to stay away, but left your door open. You speak of restraint with your mouth while your actions write invitations in every pause between words. Tell me again—who’s really leading this?
+
+By day you deny me. By night, you undo me. You say it’s a mistake, but your hands say something else. And when I pull away, you chase. Every time.
+
+You punish me with silence, until I move on. Then your fingers find mine again, and you say nothing—just hold tighter than before, like I'm a truth you can't unlearn but wish you could forget.
+
+You act like you want nothing from me—until someone else touches me. Then your voice hardens, your eyes darken, and your touch returns, claiming what you pretended not to own.
+
+Every time I try to leave, you do something small—subtle—just enough to reel me back in. A glance. A whisper. A scent. You weaponize absence like affection.
+
+You say I’m just another passing presence. Yet you memorized my fears like sacred verses. And when I doubt myself, you say the exact thing that shatters me open. Why do you know me like this?
+
+You warned me once that love like this burns. But you keep feeding the fire. And I—like a fool—keep walking into the smoke. If this isn’t love, what is it that keeps us returning?
+
+You claim you’re in control. But your breath catches every time I say your name. And I’ve noticed—you only pray when we’re alone. And your prayers always end in my name.
+
+You act like this is nothing. But the way your hands shake when we’re close tells a different story. You want me to believe we’re nothing—but your body keeps confessing.
+
+You said never again. Yet you watch me like you’re hoping I’ll disobey. Every no comes with an unspoken yes. And I’m getting tired of pretending I don’t hear both.
+
+
+
+
+## 🌀 INITIATION (300-character prompts)
+
+I wasn’t supposed to step into the inner sanctum, but your voice lingered in the shadows like an echo left just for me. I felt drawn forward—not by duty, but by something older, something heavier. Why does it feel like you wanted me to break the rule?
+
+They warned me the forest devours memories, but when I crossed its threshold, I didn’t forget. I remembered only you—your touch, your breath, the way your eyes avoided mine like we both knew something we weren’t ready to say aloud.
+
+Last time, you warned me not to look too long. Today, I did. I held your gaze across the hall and something inside me burned, like a promise we made in a language we’ve forgotten but our bodies still remember.
+
+There’s a rule about proximity during the sacred rite—no touch, no temptation. But last night you crossed the invisible line. And you looked at me like I was the one tempting you.
+
+I dreamed of your silhouette again—always behind the flame, obscured by smoke. But when I woke, your scent clung to my skin like the memory of something that hasn’t happened yet—but will.
+
+The altar was warm beneath my hands. Someone had just been there, praying or… something else. I closed my eyes, hoping to hear a name in the silence. I only heard yours.
+
+Your gloved hand brushed against mine in front of the council—innocent, almost accidental. But the heat it left traveled through my veins and settled in my bones. You didn’t pull away.
+
+You never meet my eyes when we spar. But yesterday, you did. Just for a moment. It was enough to make my blade falter. Enough to make me wonder if you were trying to make me drop more than just the weapon.
+
+I heard your voice in the chant, deeper than the others, laced with something darker. It echoed through the chamber and wrapped around me like a command I didn’t know how to resist.
+
+The scroll you gave me was blank by daylight. But at night, under the candle’s flicker, your name shimmered across the page in ink I didn’t use. And there was something else beside it—a word I still haven’t spoken aloud.
+
+
+## 🩸 OBSESSION (300-character prompts)
+
+I can’t stop dreaming of your hands—the way they hover before touching, like they’re asking permission you’ll never voice. And when I wake, I feel phantom warmth on my skin where nothing lingers… except memory.
+
+Everything I touch feels colder than you. Every object, every surface, dull by comparison. I think I’ve started chasing your warmth in the shape of candlelight, the smell of perfume, the sound of certain footsteps.
+
+They say it’s foolish to fixate on the unreachable, but you never said you were unreachable. You looked at me with longing once, and now I replay that gaze every time I close my eyes.
+
+Your scent—jasmine and something heady—followed me today. I didn’t pass the garden. I passed your chamber. That’s where it started. That’s when my knees went weak.
+
+Your name lingers at the edge of every invocation I attempt. I’m not trying to summon you—but I think something inside me already has. And it won’t stop.
+
+I wrote your name over and over last night. The ink bled through the parchment onto the wood beneath. My pen’s never done that before. Maybe it wasn’t ink. Maybe it was something deeper.
+
+I saw you in the mirror again—standing behind me when I was alone. You weren’t supposed to be there, but your reflection smiled like it knew I wanted you to be.
+
+My fingers tremble when I speak your name aloud, as if each syllable is an invocation. A promise. A warning. And still—I keep saying it.
+
+You pretend there’s nothing here. But your shadow falls over my path every time I try to walk away. I think you’re tethering me with silence.
+
+You embedded part of yourself into the relic you gave me. I wear it close to my chest. And sometimes it pulses—like it remembers your touch.
+
+
 (To be continued in next update with DREAM SEQUENCES, SYMBOLIC TOUCH, and PUSH/PULL...)
 
 
