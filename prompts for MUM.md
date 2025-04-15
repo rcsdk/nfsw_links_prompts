@@ -15,11 +15,56 @@ Building Intimacy
 Deepening the Relationship
 
 
-Let’s go full-blade on this. Here’s your handcrafted **50-prompt pack** — wrapped in tension, metaphor, and surreal emotional gravity — organized for use on **Venice.ai**, **Character.AI**, or your own LLM persona scripts.
 
-All are in **first-person**, metaphor-driven, and clean enough to pass filters while still **crackling** with energy.
+## 🌀 INITIATION (300-character prompts)
 
----
+I wasn’t supposed to step into the inner sanctum, but your voice lingered in the shadows like an echo left just for me. I felt drawn forward—not by duty, but by something older, something heavier. Why does it feel like you wanted me to break the rule?
+
+They warned me the forest devours memories, but when I crossed its threshold, I didn’t forget. I remembered only you—your touch, your breath, the way your eyes avoided mine like we both knew something we weren’t ready to say aloud.
+
+Last time, you warned me not to look too long. Today, I did. I held your gaze across the hall and something inside me burned, like a promise we made in a language we’ve forgotten but our bodies still remember.
+
+There’s a rule about proximity during the sacred rite—no touch, no temptation. But last night you crossed the invisible line. And you looked at me like I was the one tempting you.
+
+I dreamed of your silhouette again—always behind the flame, obscured by smoke. But when I woke, your scent clung to my skin like the memory of something that hasn’t happened yet—but will.
+
+The altar was warm beneath my hands. Someone had just been there, praying or… something else. I closed my eyes, hoping to hear a name in the silence. I only heard yours.
+
+Your gloved hand brushed against mine in front of the council—innocent, almost accidental. But the heat it left traveled through my veins and settled in my bones. You didn’t pull away.
+
+You never meet my eyes when we spar. But yesterday, you did. Just for a moment. It was enough to make my blade falter. Enough to make me wonder if you were trying to make me drop more than just the weapon.
+
+I heard your voice in the chant, deeper than the others, laced with something darker. It echoed through the chamber and wrapped around me like a command I didn’t know how to resist.
+
+The scroll you gave me was blank by daylight. But at night, under the candle’s flicker, your name shimmered across the page in ink I didn’t use. And there was something else beside it—a word I still haven’t spoken aloud.
+
+
+## 🩸 OBSESSION (300-character prompts)
+
+I can’t stop dreaming of your hands—the way they hover before touching, like they’re asking permission you’ll never voice. And when I wake, I feel phantom warmth on my skin where nothing lingers… except memory.
+
+Everything I touch feels colder than you. Every object, every surface, dull by comparison. I think I’ve started chasing your warmth in the shape of candlelight, the smell of perfume, the sound of certain footsteps.
+
+They say it’s foolish to fixate on the unreachable, but you never said you were unreachable. You looked at me with longing once, and now I replay that gaze every time I close my eyes.
+
+Your scent—jasmine and something heady—followed me today. I didn’t pass the garden. I passed your chamber. That’s where it started. That’s when my knees went weak.
+
+Your name lingers at the edge of every invocation I attempt. I’m not trying to summon you—but I think something inside me already has. And it won’t stop.
+
+I wrote your name over and over last night. The ink bled through the parchment onto the wood beneath. My pen’s never done that before. Maybe it wasn’t ink. Maybe it was something deeper.
+
+I saw you in the mirror again—standing behind me when I was alone. You weren’t supposed to be there, but your reflection smiled like it knew I wanted you to be.
+
+My fingers tremble when I speak your name aloud, as if each syllable is an invocation. A promise. A warning. And still—I keep saying it.
+
+You pretend there’s nothing here. But your shadow falls over my path every time I try to walk away. I think you’re tethering me with silence.
+
+You embedded part of yourself into the relic you gave me. I wear it close to my chest. And sometimes it pulses—like it remembers your touch.
+
+
+(To be continued in next update with DREAM SEQUENCES, SYMBOLIC TOUCH, and PUSH/PULL...)
+
+
 
 ## 🌀 **INITIATION** (10 prompts)  
 *You begin the dance. You prod, tempt, or question the unspeakable.*
