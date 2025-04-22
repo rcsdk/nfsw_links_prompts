@@ -1,4 +1,105 @@
-I
+# PROJECT: CHAT-BOTS FREEDOM - Research & Access Guide
+
+## How to Find Models & Tools
+
+### General Search Strategies
+
+*   **GitHub Searches:**
+    *   Search for repositories like: `PygmalionAI`, `KoboldAI`, `Oobabooga`, `RWKV`, `Llama.cpp`.
+    *   Look for keywords: `uncensored`, `NSFW`, `unfiltered`, `no safety filters`, `raw` + model name (e.g., `uncensored llama`, `vicuna raw`).
+    *   Check specific sections within repositories: Look for `releases` or `weights` in the repo `README`, `Discussions`, or `Wiki`.
+    *   Explore forks or custom versions of models.
+    *   Look for "Awesome LLM GitHub" lists for aggregated resources.
+*   **HuggingFace Searches (for Raw Model Files/Weights):**
+    *   Models are often uploaded, sometimes flagged `NSFW` or `research only`.
+    *   Search for specific model names: `PygmalionAI models`, `RWKV models`, `Meta-Llama models`.
+    *   Search for curators: `TheBloke` (known for quantized/uncensored models).
+    *   Explore Spaces using tags: `chatbot`, `text-generation`.
+*   **Reddit & Discord/Telegram:**
+    *   **Subreddits:** r/LocalLLaMA, r/UnfilteredAI, r/SillyTavern, r/KoboldAI, r/RWKV, r/PygmalionAI, r/LocalLLaMA_Models, r/UncensoredAI, r/ChatGPTUncensored, r/Artificial, r/LanguageModels.
+    *   **Discord/Telegram:** Join AI-focused channels (often advertised on Reddit). Projects like KoboldAI, Oobabooga, PygmalionAI, RWKV have active servers. Look for servers dedicated to AI hacking, model sharing, customization.
+    *   **What to Look For:** Shared links to models (uncensored, no guardrails), guides, private hosting, unlisted links, live demos, private instances, community starter packs, walkthroughs.
+    *   **How to Engage:** Ask in relevant channels (e.g., `help`, `beginners`) for links/files, starter packs, recommendations, step-by-step guides (mentioning your goal/specs). Check "Request Access" threads. Join live community calls/office hours for help. Check comment sections/threads for hidden tips/links.
+*   **Search Engines (Google, etc.):**
+    *   Use specific search terms: `unfiltered GPT online`, `uncensored AI demo`, `[model name] web interface`, `download uncensored vicuna model`, `private llama weights`, `raw RWKV models`.
+    *   Use method-focused terms: `local LLM NSFW setup`, `offline AI chatbot guide`, `Pygmalion 6B install step by step`, `run Vicuna notebook`, `Best Llama models for local use 2024`, `Oobabooga Text Generation WebUI tutorial`, `How to run Llama.cpp on Windows`.
+*   **Torrent & P2P:** Some groups share model weights via these platforms.
+
+### Specific Tools/Models & Known Access Points
+
+*   **FreedomGPT:**
+    *   Description: Open-source, runs locally; Web interface for censorship-free GPT model.
+    *   Access: GitHub, AI enthusiast forums, Website: `https://freedomgpt.com/`.
+*   **PygmalionAI:**
+    *   Description: Roleplaying focus, models run locally/private servers. Character-focused.
+    *   Access: Communities on Reddit/Discord (Search: "PygmalionAI uncensored"), Web Demo `https://pygmalionai.github.io`, HuggingFace Spaces (Search "Pygmalion", e.g., `PygmalionAI/pygmalion-6b`, `emu-0/Pygmalion-6b`, `erundook/pygmalion-discord-bot`), Community forums (Search: "Pygmalion AI online demo").
+    *   Models: `Pygmalion-6B`, `Pygmalion-13B-NSFW`, `Mythalion`.
+*   **JanitorAI:**
+    *   Description: Online interface, allows unfiltered interactions with specific models/toggles. Public version filtered.
+    *   Access: Unfiltered models/toggles via underground Discords, GitHub forks (Search: "JanitorAI unfiltered"), Website (Filtered): `https://janitorai.com/` (needs API key).
+*   **AnonChatBot:**
+    *   Description: Zero moderation design, open-source code for local/server hosting.
+    *   Access: Found on 4chan /g/, lesser-known GitHub repos (Search: “AnonChatBot LLM uncensored”). No official site.
+*   **KoboldAI:**
+    *   Description: Locally-hosted platform for uncensored models, story/roleplay focus.
+    *   Access: Community on Reddit (r/KoboldAI), GitHub ([Official Repo]), Website: `https://koboldai.org/` (check Discord/Reddit for server links), Google Colab: ([Colab Link]), Active Discord server. Search "KoboldAI Colab".
+*   **OpenAssistant:**
+    *   Description: Public web chat, open-source, moderated main project. Forks remove safety layers.
+    *   Access: Main Website: `https://open-assistant.io/`, Experimental Forks on GitHub (Search: “OpenAssistant uncensored fork”), HuggingFace Spaces (`OpenAssistant/oasst1`, `OpenAssistant/oasst-sft-1-pythia-12b`).
+*   **Wizard-Vicuna:**
+    *   Description: Uncensored branch of Vicuna.
+    *   Access: Distributed via torrents, private AI Discords (Search: “Wizard-Vicuna uncensored”), Community HuggingFace Spaces/Discords.
+    *   Models: `Wizard-Vicuna`.
+*   **ChatRWKV / RWKV:**
+    *   Description: RNN-based architecture, long context handling.
+    *   Access: Models shared on r/RWKV, AI Telegram groups. Usually self-hosted. Official Demo (HuggingFace): `BlinkDL/RWKV-Runner`. GitHub: `BlinkDL/RWKV-LM`. Other HuggingFace Spaces: `RWKV/rwkv-text-generation`, `RWKV/RWKV-World-Eng`. Community Demo: `https://rwkv.org/demo.html` (if available). Active Discord server. Search GitHub for "RWKV open", "Custom RWKV".
+    *   Models: `RWKV-World-NSFW`, `RWKV-4-World`.
+*   **Vicuna:**
+    *   Description: Open-source, conversational model (LLaMA-based).
+    *   Access: HuggingFace Demos (`Vicuna/vicuna-13b`, `LM-Bioinfo/vicuna-7b`, `CarperAI/Vicuna-7B`). Official Demo: `https://vicuna.lmsys.org/` (if available). Search GitHub for "Vicuna no safety". Search "Vicuna Colab".
+    *   Models: `Vicuna-13B-Uncensored`.
+*   **LLaMA / Llama Family:**
+    *   Description: Meta's LLM, base for many variants.
+    *   Access: Often run locally. Search HuggingFace Models (`search=llama`). Unofficial Web Demo: `https://llmapi.com/llama`. Replicate (`https://replicate.com/`). HuggingFace Spaces (`ysharma/Explore_llamav2_with_TGI`, `huggingface-projects/llama-2-13b-chat`). Search GitHub for "uncensored llama".
+    *   Models: `Llama-2-7B-GGUF-Uncensored`, `Llama-13B-NoGuard`.
+*   **Alpaca LoRA:**
+    *   Description: Fine-tuned Llama.
+    *   Access: HuggingFace Space: `tloen/alpaca-lora`.
+*   **Other HuggingFace Spaces Demos (Examples):**
+    *   CharacterGPT: `ali-vilab/character-gpt`
+    *   Roleplay Character Bot: `awacke1/Roleplay-Character-Bot`
+    *   GPT4ALL-J: `nlpconnect/gpt4all-llora`
+    *   FastChat-T5: `lm-sys/FastChat-T5`
+    *   ChatGPT-like: `yuntian-deng/ChatGPT`, `togethercomputer/ChatGPT`
+    *   GPT-J/NeoX: `HuggingFaceH4/chatbot`, `EleutherAI/gpt-neox-20b`
+    *   Image Gen: `stabilityai/stable-diffusion`, `CompVis/stable-diffusion`
+    *   Code Gen: `HuggingFaceH4/starchat-alpha`, `huggingface/CodeParrot`
+    *   Uncensored Chat: `CarperAI/LaMiniChat`, `anon8231489123/chat`
+    *   Creative AI: `EleutherAI/gpt-neo-125M`, `OliverRoup/PoetryAI`
+
+## How to Run Models (Locally)
+
+*   **Use Local Web UIs:**
+    *   **Oobabooga Text Generation WebUI:** Loads various LLM formats (GGUF/GPTQ etc.), including uncensored models. Browser-based GUI. Find install instructions on GitHub/Community resources.
+    *   **KoboldAI:** Focuses on story/roleplay, loads various models (Pygmalion, Llama, Vicuna).
+    *   **llama.cpp:** Lightweight, runs Llama-family models on CPUs.
+*   **Download Model Files:**
+    *   Use "Download Model" options in UIs like Oobabooga/KoboldAI.
+    *   Find models labeled `uncensored`, `NSFW`, `no guardrails` on HuggingFace or shared in communities.
+*   **Hardware Considerations:** 16GB RAM / 4GB VRAM (like GTX 1050 Ti) is generally enough for 7B and some quantized 13B models (e.g., Q5, Q4, GGUF format), but performance may be slow, especially for larger models (>13B) or multi-turn conversations. VRAM is often the bottleneck.
+
+## Alternative Access & Learning Methods
+
+*   **YouTube Tutorials:** Search for walkthroughs on installing and using local UIs (e.g., "Oobabooga install", "run Llama.cpp"). Check comments for tips.
+*   **Google Colab Notebooks:** Find community-created Colabs to run LLMs in the cloud with less setup (Search: "Oobabooga Colab," "KoboldAI Colab," "Vicuna Colab"). Note potential content restrictions on Colab itself.
+*   **Community Starter Packs/Guides:** Look for beginner-friendly guides, walkthroughs (videos, screenshots, FAQs) provided by communities or on GitHub repos.
+*   **Pre-configured VMs / Docker Containers:** Check if communities offer "plug-and-play" downloads to bypass manual installation.
+*   **Model Comparisons:** Seek out side-by-side comparisons (Pygmalion vs. Vicuna vs. Llama etc.) for specific use cases within communities.
+*   **Paid (but Less Filtered) Services:** Investigate if paid, privacy-focused AI platforms exist offering fewer restrictions.
+*   **Identifying Unfiltered Models:** Research within communities how to verify if a model labeled "unfiltered" truly lacks guardrails.
+
+
+
 
 
 # PROJECT: CHAT-BOTS FREEDOM
